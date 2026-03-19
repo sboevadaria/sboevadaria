@@ -1,4 +1,4 @@
-## 👋 Привет, меня зовут Дарья!
+## 👋 Hi! Data analyst in progress 😛
 
   
 
